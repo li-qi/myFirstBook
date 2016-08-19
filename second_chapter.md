@@ -1,2 +1,2 @@
-# second Chapter
+# Second Chapter
 
